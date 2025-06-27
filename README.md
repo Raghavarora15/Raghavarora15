@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **thisisraghavarora@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tZ3vrpSQ7dEViJred8-b6prYQaVPer6E/view?usp=sharing](https://drive.google.com/file/d/1tZ3vrpSQ7dEViJred8-b6prYQaVPer6E/view?usp=sharing)
-
 - ⚡ Fun fact **I think I am a Foodieeee**
 
 <h3 align="left">Connect with me:</h3>
